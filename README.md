@@ -1,2 +1,4 @@
 # Nitin-
 wanted to build and best trading like an hedge fund 
+why not
+we can try
